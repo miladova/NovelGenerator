@@ -2,11 +2,13 @@
 
 *Southampton, 10 April 1912*
 
-By half past eleven Arwen had tipped three men for carrying her trunk and could no longer say where it was. The third man, who wore a white jacket and had not carried it at all, assured her that everything marked *Wanted on Voyage* would come to her cabin. She would have liked to ask where they put the things one wanted only after it was too late to go back for them. Instead she thanked him. He had six cabin numbers written on his cuff and no room for another.
+Before noon Arwen had tipped three men for carrying her trunk and could no longer say where it was. The third man, who wore a white jacket and had not carried it at all, assured her that everything marked *Wanted on Voyage* would come to her cabin. She would have liked to ask where they put the things one wanted only after it was too late to go back for them. Instead she thanked him. He had six cabin numbers written on his cuff and no room for another.
 
-The black dispatch case had remained in her hand from the moment she left the train. It contained two contracts, her sister’s address in Philadelphia, and a ham sandwich wrapped in a page of the *Liverpool Echo*. At the station that morning her brother-in-law had put in the first contract while she was buying the sandwich. She had watched him do it through the glass of the refreshment-room door. He had pulled his glove off with his teeth to get at the catch, a little intimacy with her property that she had found harder to bear than any of the things he had said at the funeral.
+The black dispatch case had remained in her hand from the moment she left the train. It contained two contracts, her sister’s address in Philadelphia, and a ham sandwich wrapped in a page of the *Liverpool Echo*. At Waterloo that morning, while she was buying the sandwich, her brother-in-law had put in the first contract. She had watched him do it through the glass of the refreshment-room door. He had pulled his glove off with his teeth to get at the catch, a little intimacy with her property that she had found harder to bear than any of the things he had said at the funeral.
 
 ‘One signature,’ Ivor had told her. ‘Then it needn’t spoil your crossing.’
+
+He had lent her the fare on the understanding that the money would come back to him when the works sold. The man at the White Star office had asked whether she meant to travel first or second. ‘First, naturally,’ Ivor had said, before she could tell the man what she could afford.
 
 There were in fact two places to sign. He had marked both with little crosses in pencil, as William used to mark proofs when the correction was too obvious to bother putting into words.
 
@@ -38,13 +40,27 @@ She watched him go as far as a gate she couldn’t follow him through. At the ga
 
 It was Harold Lowe.
 
-A tug went across the gap trailing a wash the colour of dirty linen. The crowd pressed back to the rail, and the young mother stood on tiptoe to see over it. Arwen gave up her place. She was suddenly afraid somebody would ask her what she thought had happened, and she would tell them the wrong thing.
+A tug swung round beyond the other ship’s stern, trailing a wash the colour of dirty linen. The crowd pressed back to the rail, and the young mother stood on tiptoe to see over it. Arwen gave up her place. She was suddenly afraid somebody would ask her what she thought had happened, and she would tell them the wrong thing.
+
+She got as far as the stairs. There she heard one of the men from the rail tell another that the *New York* had been idle for want of coal. He said it with satisfaction, as though the whole thing began and ended with men refusing to go down a pit. The other man wanted to know if they could get a telegram off to London. Arwen stood aside for them both and remembered the queue at the coal merchant’s in Liverpool, the woman ahead of her with a baby in her shawl and an order for a hundredweight that she kept unfolding to make sure it still said a hundredweight. Arwen had gone home without any that day. Two days later a clerk had brought her a scuttle from the works and refused a penny for carrying it. She had let William think she’d bought it so he would agree to a fire in the bedroom.
 
 ---
 
 The trunk came while she was reading the second contract. Mrs Hesketh had drawn it up herself on the back of a spoiled order for three thousand funeral cards. She had been forewoman at the bindery since before William took Arwen there and showed her how much gold leaf a woman could lift on the point of a brush without appearing to lift anything at all. Under Mrs Hesketh’s terms, the women would buy the bindery from Arwen in quarterly payments. The first payment was due in July. The sum would not have kept Arwen at a New York hotel for a week.
 
-Under the other contract a firm in Manchester would buy the whole works outright. They wanted the two machines downstairs and the presses upstairs. They hadn’t asked to see the women.
+Under the other contract a firm in Manchester would buy the whole works outright. They wanted the presses downstairs, the guillotine and the folding machine upstairs, and the use of William’s name on the invoices for a year. They hadn’t asked to see the women.
+
+Mrs Hesketh had come to the house to make her offer. She’d stood at the kitchen table in her work apron and taken pins out of the bib as if she needed to get them out of her way before she could speak. The women had gone through the books they handled week by week and made a list of which orders they thought they could keep. They knew, for example, that the draper’s catalogues were sent to Vaughan’s for folding because Mrs Hesketh knew how to take the bulk out of the corner where the paper tended to split. The draper couldn’t have said why his own man never got it right, only that he didn’t. There was business in knowing a thing a man couldn’t describe well enough to ask for anywhere else.
+
+‘And the younger girls?’ Arwen had asked. ‘Do they get a share?’
+
+‘They get wages. It’s the four of us putting money in who’d have shares.’
+
+‘That’s how William would have done it.’
+
+‘Yes,’ Mrs Hesketh had said. ‘It’s where we learnt.’ She had pushed the offer across the oilcloth with the flat of her hand. ‘You’ll find what I mean to pay myself on the other side.’
+
+Mrs Hesketh had allowed herself one pound a week. She had made more on good weeks under William. She had made less in each of the last nine, though Arwen knew that because she’d written the numbers down, not because she’d ever asked Mrs Hesketh what she did when she went home with less. She had counted it a virtue, in those days, not to pry.
 
 ‘Where would you like it, madam?’ the steward said.
 
@@ -66,7 +82,19 @@ Her trunk stood shut at the foot of the bed. She thought about unpacking. Instea
 
 ---
 
-At the sheltered end of the promenade the deck chairs were still mostly unclaimed. Arwen sat in one until a steward told her it belonged to somebody, then stood with her back to the deckhouse and watched a stretch of coast she couldn’t name. The ship had been under way again for hours. She had seen every sort of cap except the one she was looking for.
+At the sheltered end of the promenade the deck chairs were still mostly unclaimed. Arwen sat in one until a steward told her it belonged to somebody, then stood with her back to the deckhouse. The ship had been under way again for hours. She had seen every sort of cap except the one she was looking for.
+
+The boy from the rail appeared around a corner at a run, going just fast enough that his mother couldn’t keep hold of his hand without running herself. When he saw Arwen he stopped. ‘Do you want to see my ship?’ he asked, and opened his fist. He had been holding a piece of orange peel. It was folded in two and so warm from his hand that Arwen could smell it from where she stood.
+
+‘Which end is the front?’ she asked him.
+
+He turned it round. ‘That end now.’
+
+His mother caught up and, seeing what he held, closed his fingers over it. ‘It’s all right,’ she said. Arwen had the impression that the woman was speaking to herself. ‘Your father won’t mind so long as it stays out of your pocket.’
+
+She straightened the boy’s collar, then asked Arwen if she was crossing alone. Arwen said she was. The woman said, very softly, ‘How lovely.’ Then she turned red. Arwen might have touched the black at her throat. She had seen a great many people offered that small release from saying what they meant, and she wanted, for once, to see what happened if it wasn’t offered.
+
+‘Only for five minutes, mind,’ the woman said at last, and made Arwen laugh. The boy looked up at the sound. He wanted to know what was funny, and his mother said she would tell him when he had children of his own. He went off considering whether that would be before or after he got a dog.
 
 She had just made up her mind to go inside when a man coming along the deck interrupted his own whistle.
 
@@ -98,7 +126,21 @@ Harold nodded, once. He did not say he was sorry a second time. He set his cap o
 
 She hadn’t meant it as a joke. His mouth went up at one side, and she was shown, before she had time to look away, exactly what she had once been willing to go without merely to have him smile at her across a room.
 
-‘Fifth officer,’ he said. ‘On this one. How far are you going?’
+‘Fifth officer,’ he said. ‘On this one.’
+
+‘And the master’s ticket?’
+
+‘Got it.’ He glanced at her, then away. ‘I thought of writing when I got it.’
+
+In Barmouth, in the weeks before he ran away to sea, the adults had kept sending Arwen in to find out whether he’d come round to the idea of an apprenticeship. They knew he told her things. It hadn’t occurred to them that knowing the things he told her meant she might take his side. He’d said he wanted pay for his work. Everybody talked about the sea as if it were a foolish passion that would wear out, and nobody would answer what he’d actually said. Arwen had been quite proud of herself for seeing the difference. Years later, when she wanted him to stay, she hadn’t wanted to see it quite so well.
+
+‘You could have written,’ she said.
+
+‘To which house?’
+
+She knew perfectly well he could have got the address. She also knew she could have made sure he had it.
+
+He let her have a moment to answer, and when she didn’t, he said, ‘How far are you going?’
 
 ‘Philadelphia, by way of New York. My sister’s there.’
 
